@@ -1,2 +1,2 @@
-# 50Tamas.github.io
+# elsó repo-m
 -Tomikának-
